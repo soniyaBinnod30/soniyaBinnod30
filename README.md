@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @soniyaBinnod30
 - 👀 I’m interested in : Gaming
-- 🌱 I’m currently learning: Bachelor og Engineering Degree
+- 🌱 I’m currently learning: Bachelor of Engineering Degree
 - 📫 How to reach me : soniyabinnodytl1@gmail.com
 
 <!---
